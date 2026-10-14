@@ -1,1 +1,1 @@
-I am ready for challenge
+I am ready for challenge. It is a joke!
